@@ -17,8 +17,7 @@ _______________________
 
 ### contact me
 ______________
-📧 a.zhong3528@gmail.com <br/>
-💼 https://www.linkedin.com/in/annazhong1/ 
+💼 feel free to reach out to me through email (a.zhong3528@gmail.com) or linkedin (https://www.linkedin.com/in/annazhong1/)
 
 
 
