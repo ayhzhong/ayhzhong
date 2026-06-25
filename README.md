@@ -8,12 +8,13 @@ _______________
 💛 happiest reading, writing, and exploring the city through food <br/>
 🌍 training to run a sub-30 5k and sub-60 10k this summer <br/>
 ☕ powered by curiosity, (lots of) caffeine, and a healthy dose of chaos <br/>
+🤸‍♀️ catching up on the latest competitions in rhythmic gymnastics <br>
 
 ### currently i'm exploring
 _______________________
 🪴 the intersection of tech and social impact <br/>
 🐍 how to leverage python for effective data analysis and visualization <br/>
-📖 building more engaging, personalized, and accessible products for education <br/>
+📖 building products a younger me wished existed <br/>
 
 ### contact me
 ______________
