@@ -6,6 +6,7 @@ _______________
 
 **beyond school and work, i'm:** <br/>
 💛 happiest reading, writing, and exploring the city through food <br/>
+    📖 current reads: strangers by belle burden and the five people you meet in heaven by mitch albom
 🌍 training to run a sub-30 5k and sub-60 10k this summer <br/>
 ☕ powered by curiosity, (lots of) caffeine, and a healthy dose of chaos <br/>
 🤸‍♀️ catching up on the latest competitions in rhythmic gymnastics <br>
