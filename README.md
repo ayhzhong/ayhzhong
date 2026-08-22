@@ -5,7 +5,7 @@ _______________
 ✨ hi! i'm anna -- an accounting and business analytics student by day; aspiring product manager learning to code by night
 
 **beyond school and work, i'm:** <br/>
-📖 currently reading: strangers by belle burden and the five people you meet in heaven by mitch albom <br>
+📖 currently reading: educated by tara westover <br>
 🌍 training to run a sub-30 5k and sub-60 10k this summer <br/>
 ☕ powered by curiosity, (lots of) caffeine, and a healthy dose of chaos <br/>
 🤸‍♀️ catching up on the latest competitions in rhythmic gymnastics <br>
