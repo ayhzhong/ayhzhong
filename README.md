@@ -8,12 +8,12 @@ _______________
 📖 currently reading: educated by tara westover <br>
 🌍 training to run a sub-30 5k and sub-60 10k this summer <br/>
 ☕ powered by curiosity, (lots of) caffeine, and a healthy dose of chaos <br/>
-🤸‍♀️ catching up on the latest competitions in rhythmic gymnastics <br>
+🤸‍♀️ catching up on the latest competitions in rhythmic gymnastics and figure skating <br>
 
-### currently i'm exploring
+### currently i'm exploring/working on 
 _______________________
 🪴 the intersection of tech and social impact <br/>
-🐍 how to leverage python for effective data analysis and visualization <br/>
+🐍 harvard's cs50 python course <br/>
 📖 building products a younger me wished existed <br/>
 
 ### contact me
